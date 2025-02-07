@@ -1,0 +1,1 @@
+They're numbered 11 through 14, in order of increasing grip force. The actual grip force in kg has been lost to time. 
